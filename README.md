@@ -13,4 +13,4 @@ Visual Studio Code
 ### Link do projeto 👇
 
 
-## Muito obrigado, aceito sugestões! ❤️💻
+## Muito obrigada, aceito sugestões! ❤️💻
